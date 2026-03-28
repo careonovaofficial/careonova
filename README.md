@@ -12,8 +12,7 @@ Science-backed laundry and fabric care solutions.
 
 ## Popular Guides
 - https://careonova.com/what-are-scent-boosters/
-- https://careonova.com/remove-hard-water-stains-clothes/
-
+- https://careonova.com/how-to-remove-mold-on-clothes/
 ## Topics
 - Laundry odor removal
 - Fabric care
